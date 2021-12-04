@@ -1,2 +1,4 @@
 # SCPDevolved
-just some shitty stuff for a game
+Why are you here?
+
+> mfw
